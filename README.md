@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hdthong2007
-- 👀 I’m interested in playing League and coding
+- 👀 I’m interested in playing League, playing football and coding
 - 🌱 I’m currently in the Grade 11th
 - 💞️ I’m looking to building a profile-personalized website
 - 📫 My email: hdthong2007@gmail.com
